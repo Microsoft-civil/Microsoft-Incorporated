@@ -1,1 +1,1 @@
-# Microsoft-Incorporated
+# Microsoft
